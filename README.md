@@ -1,0 +1,1 @@
+# Mapa_Cober_perdida
